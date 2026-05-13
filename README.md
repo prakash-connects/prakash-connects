@@ -1,6 +1,6 @@
 # Hey, I'm Prakash Behera 👋
 
-**Brand & Growth Marketer | AI-Augmented | Founding Member @ Aromasymphonies**
+**Brand & Growth Marketer | AI-Augmented | Founding Member (Marketing) @ Aromasymphonies**
 
 > "I don't just build marketing strategies — I build the systems that run them."
 
